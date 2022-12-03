@@ -1,1 +1,1 @@
-Hi, !'m @sam-ka. I live in Kuwait and work at Kutometa SPC.
+Hi, I'm @sam-ka. I live in Kuwait and I work at Kutometa Technologies, Kuwait 🏖️
